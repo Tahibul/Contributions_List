@@ -13,7 +13,8 @@ Projects as of now:
 
 
 2023 Contributions:
-![Screenshot 2024-07-18 135152](https://github.com/user-attachments/assets/7f61d65b-40d1-46ed-ae35-46ad85f5158e)
+![image](https://github.com/user-attachments/assets/74f5ab95-8a4f-4ef7-bf1d-9782709fcf68)
+
 
 
 
